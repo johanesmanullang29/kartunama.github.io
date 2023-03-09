@@ -1,1 +1,0 @@
-# kartunama.github.io
